@@ -94,7 +94,7 @@ Esto constituye la **primera etapa del curs**o y mi regalo hacia la comunidad de
 
 En la **primera** deberás leer e incorporar la teoría, que es lo que estás haciendo ahora mismo.
 
-!!!alert Tu _hype_ va a disminuir cuando entiendas que deberás aportar muchísimo a tu trading, y aplicar este curso a tu propia estrategia y personalidad. !!!
+Tu _hype_ va a disminuir cuando entiendas que deberás aportar muchísimo a tu trading, y aplicar este curso a tu propia estrategia y personalidad. !!!
 
 Es muy probable que quieras abandonar a la semana de comenzar esta etapa, y por eso te acompañaremos en tu reseteo con nuestra comunidad.
 
